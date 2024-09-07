@@ -2,6 +2,8 @@
 
 All For Humans and Else Illusion Confirmation From 6.1.1982
 
+KINGDOM OF THE PLANET OF THE APES ALL (2024) ABOUT TRUE
+
 Abu Dharr reported that he asked Muhammad about the number of prophets. The Prophet replied, There were 124,000 (Check) prophets, and among them, 313 were messengers. Another Hadith mentions that Abu Dharr asked the Prophet about the first prophet, and the Prophet replied, Adam was the first (TheCreators|UVM) of the prophets(TheCreators|UVM).
 
 1 God Want ?
